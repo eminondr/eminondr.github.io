@@ -1,2 +1,2 @@
 # Emin Önder
-Emin Önder is software developer & cybersecurity specialist. A bit writer. Mostly, a growth bug hunter.
+Happy. Free. Confused. Lonely. At the same time - Information Security. Security Research Legal/ethical Hacking Penetration Testing
